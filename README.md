@@ -1,2 +1,3 @@
 # SkypaaUnlocker
-Bla bla bla
+just instal in your magisk👍
+t.me/Skypaaa
